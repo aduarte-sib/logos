@@ -1,1 +1,1 @@
-# Repositorio de los logos de los socios publciadores
+# Repositorio de los logos de los socios publicadores
